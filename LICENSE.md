@@ -1,4 +1,4 @@
-
+Enhance OneNote for Windows with rare OneNote for Windows Integration | templates + offline-access, the #1 integration. Includes templates and offline-access for a smoother and
 
 
 
